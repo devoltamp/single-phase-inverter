@@ -6,4 +6,7 @@
 > [!NOTE]
 > click the image to view it clearly
 <img width="3082" height="2026" alt="with driver" src="https://github.com/user-attachments/assets/0ff65525-b211-4417-b515-1229c8c8692c" />
-<img width="810" height="178" alt="Recording 2026-10-18 110441" src="https://github.com/user-attachments/assets/f1e7434e-aa65-48d2-94b5-871cd195b2b4" />
+
+
+https://github.com/user-attachments/assets/3dfe6765-0608-4ea1-a7e6-09f013bc383d
+
